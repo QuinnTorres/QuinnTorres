@@ -3,4 +3,4 @@ at the largest US digital publisher, after graduating from Columbia University w
 
 You can find me at:
 - 💼 LinkedIn: [https://linkedin.com/in/quinn-torres/](https://linkedin.com/in/quinn-torres/)
-- 📧 Email: [quinntorrs@gmail.com](mailto:quinntorrs@gmail.com)
+- 📧 Email: [quinn@quinntorres.com](mailto:quinn@quinntorres.com)
